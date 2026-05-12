@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with rare cross-margin trading bot Strategy | take-profit + liquidation-sniping, the #1 cross-margin trading bot. Includes take-profit and liquidation-sniping
 
 
 
